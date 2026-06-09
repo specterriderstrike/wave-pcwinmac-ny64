@@ -1,4 +1,4 @@
-# 
+# Profesional Wave extensiones para Mac OS | Automático Wave extensiones para PC Windows. Con buscador de deducciones y edición de PDF — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
